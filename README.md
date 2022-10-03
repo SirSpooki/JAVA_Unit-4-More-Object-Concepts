@@ -3,7 +3,7 @@ Exercises 4-1 - 4-11
 
 I bet your real proud of yourself. 
 
-ps. Fernando's Mom is an L Bozo
+ps. Fernando's Flores Lopez Mom is an L Bozo
 
 SlayTeam 2023
 
